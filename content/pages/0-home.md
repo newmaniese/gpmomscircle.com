@@ -7,4 +7,4 @@ We are over 100 members strong, and we are a 100 percent member-led organization
 
 Our members enjoy monthly activities such as Brunch Bunch, Potluck Playdate, Coffee Club, Fitness Outings, Mom’s Night Out, Cocktails & Cuisine, and Social with complimentary childcare, among so much more. Our many playgroups, weekly summer park playdates and private Facebook group provide our members with frequent, much-needed communication and companionship. Our moms also participate in many community service projects throughout the year.
 
-Our dues are $45 per year. To become a member, [please click here](/pages/membership.html). For more information contact our Membership VP at GPMCmembership@gmail.com
+To become a member, please request to join our Facebook Group: https://www.facebook.com/groups/gpmomscircle
