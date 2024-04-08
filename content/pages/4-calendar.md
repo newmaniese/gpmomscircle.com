@@ -1,3 +1,7 @@
 Title: Calendar
 
-<iframe style="width:100%; height:600px;" src="https://calendar.google.com/calendar/embed?src=grossepointemomscircle@gmail.com&ctz=America/New_York&pli=1"></iframe>
+A typical week of events hosted by the Grosse Pointe Moms' Circle looks like this:
+
+Tuesday 10 AM: Brunch Bunch at a Members Home
+Wednesday 8 PM: Mom Game Night
+Friday 11 AM: Stroller Roll at the Ford House
