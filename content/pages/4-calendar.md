@@ -7,3 +7,4 @@ Tuesday 10 AM: Brunch Bunch at a Members Home
 Wednesday 8 PM: Mom Game Night
 
 Friday 11 AM: Stroller Roll at the Ford House
+
